@@ -1,5 +1,4 @@
 
-
 In this book, we have explored the importance of empathy and kindness in the workplace and how they can be used to foster healthier and more productive workplace relationships. We have covered topics such as understanding empathy and kindness in the workplace, building emotional intelligence, navigating conflict with empathy and kindness, fostering inclusion and diversity, improving communication and collaboration, and practicing self-care.
 
 Summary of Key Points
