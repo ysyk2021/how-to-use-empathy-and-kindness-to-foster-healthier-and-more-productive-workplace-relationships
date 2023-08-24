@@ -1,5 +1,3 @@
-Chapter 3: Building Emotional Intelligence
-==========================================
 
 Building emotional intelligence is critical for using empathy and kindness effectively in the workplace. In this chapter, we will explore the importance of building emotional intelligence, strategies for doing so effectively, and techniques for using self-reflection and empathy-building to enhance workplace relationships.
 

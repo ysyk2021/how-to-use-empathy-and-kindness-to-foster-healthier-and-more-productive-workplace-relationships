@@ -1,5 +1,3 @@
-Demonstrating Leadership and Good Communication Skills
-=============================================================================================================================
 
 Applying empathy and kindness skills to career advancement can help individuals demonstrate strong leadership and communication skills, which can lead to career growth and success. In this chapter, we will explore strategies for demonstrating leadership and good communication skills through empathy and kindness in the workplace.
 

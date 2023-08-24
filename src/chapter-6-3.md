@@ -1,5 +1,3 @@
-Using Conflict Resolution and Problem-Solving Frameworks
-==================================================================================================================
 
 Conflict is a natural part of any workplace, but it can be challenging to navigate. In this chapter, we will explore how empathy and kindness can be used to navigate conflict in the workplace, and we will introduce conflict resolution and problem-solving frameworks that can help.
 

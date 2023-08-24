@@ -1,5 +1,3 @@
-Chapter 5: Demonstrating Kindness and Respect
-=============================================
 
 Demonstrating kindness and respect in the workplace is critical for fostering healthier and more productive workplace relationships. In this chapter, we will explore the importance of demonstrating kindness and respect, strategies for doing so effectively, and techniques for using gratitude and appreciation to enhance workplace relationships.
 

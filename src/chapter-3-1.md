@@ -1,5 +1,3 @@
-The Importance of Building Emotional Intelligence in Using Empathy and Kindness in the Workplace
-============================================================================================================================================
 
 Emotional intelligence is a critical skill for using empathy and kindness effectively in the workplace. In this chapter, we will explore the importance of building emotional intelligence and how it can help us to use empathy and kindness more effectively.
 
@@ -33,5 +31,4 @@ Conclusion
 ----------
 
 Emotional intelligence is a critical skill for using empathy and kindness effectively in the workplace. By recognizing and understanding our own emotions, as well as the emotions of others, we can build stronger relationships, manage conflict more effectively, and improve our overall job satisfaction. By practicing self-awareness, active listening, seeking feedback, and engaging in mindfulness or meditation practices, we can build our emotional intelligence and use empathy and kindness to foster healthier and more productive workplace relationships.
-
 

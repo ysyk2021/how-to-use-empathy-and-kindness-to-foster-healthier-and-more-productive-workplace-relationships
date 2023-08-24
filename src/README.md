@@ -1,4 +1,4 @@
-# Introduction
+
 
 In any workplace, positive relationships are essential for success. When employees feel valued, respected, and supported by their colleagues, they are more engaged, productive, and committed to achieving shared goals. Empathy and kindness are two important qualities that can foster healthier and more productive workplace relationships.
 

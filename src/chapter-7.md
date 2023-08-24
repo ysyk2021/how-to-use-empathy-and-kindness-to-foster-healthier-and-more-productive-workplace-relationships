@@ -1,5 +1,3 @@
-Chapter 7: Fostering Inclusion and Diversity
-============================================
 
 Fostering inclusion and diversity in the workplace is critical for using empathy and kindness effectively. In this chapter, we will explore the role of fostering inclusion and diversity in the workplace, strategies for doing so effectively, and techniques for using cultural awareness and sensitivity training to enhance workplace relationships.
 

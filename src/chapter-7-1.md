@@ -1,5 +1,3 @@
-The Role of Fostering Inclusion and Diversity in Using Empathy and Kindness in the Workplace
-==========================================================================================================================================
 
 In order to create a truly empathetic and kind workplace, it is essential to foster inclusion and diversity. In this chapter, we will explore the role of fostering inclusion and diversity in using empathy and kindness in the workplace.
 

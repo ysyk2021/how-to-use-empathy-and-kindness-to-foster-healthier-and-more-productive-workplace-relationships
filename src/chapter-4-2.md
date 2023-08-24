@@ -1,4 +1,3 @@
-# Strategies for Practicing Empathetic Communication
 
 In the previous chapter, we discussed the importance of empathy in fostering healthier and more productive workplace relationships. In this chapter, we will explore strategies for practicing empathetic communication.
 

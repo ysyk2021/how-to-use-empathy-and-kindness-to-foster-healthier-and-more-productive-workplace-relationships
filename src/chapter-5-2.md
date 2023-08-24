@@ -1,5 +1,3 @@
-Strategies for Demonstrating Kindness and Respect
-================================================================================================
 
 Demonstrating kindness and respect in the workplace is critical for fostering healthy workplace relationships. In this chapter, we will explore strategies for demonstrating kindness and respect towards colleagues, including effective communication, active listening, and recognition of accomplishments.
 

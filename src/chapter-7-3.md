@@ -1,5 +1,3 @@
-Using Cultural Awareness and Sensitivity Training
-===============================================================================================
 
 Fostering inclusion and diversity in the workplace is critical for creating a positive and supportive work environment. In this chapter, we will explore how cultural awareness and sensitivity training can help foster inclusion and diversity in the workplace.
 

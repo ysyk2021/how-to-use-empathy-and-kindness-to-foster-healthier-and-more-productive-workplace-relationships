@@ -1,5 +1,3 @@
-The Impact of Empathy and Kindness on Personal and Professional Development
-===========================================================================================================================================
 
 Empathy and kindness are important tools for building healthier and more productive workplace relationships. In this chapter, we will explore the impact of empathy and kindness on personal and professional development.
 

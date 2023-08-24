@@ -1,5 +1,3 @@
-Chapter 4: Practicing Empathetic Communication
-==============================================
 
 Empathetic communication is critical for fostering healthier and more productive workplace relationships. In this chapter, we will explore the role of empathetic communication in the workplace, strategies for practicing it effectively, and techniques for using active listening and non-judgmental feedback to enhance empathetic communication.
 

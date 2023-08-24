@@ -1,5 +1,3 @@
-Analyzing Employee Engagement and Satisfaction Data and KPIs
-===============================================================================================================
 
 Analyzing employee engagement and satisfaction data and key performance indicators (KPIs) is a useful method for measuring empathy and kindness success in the workplace. In this chapter, we will explore how to use these metrics to measure the impact of empathy and kindness on workplace relationships and overall productivity.
 

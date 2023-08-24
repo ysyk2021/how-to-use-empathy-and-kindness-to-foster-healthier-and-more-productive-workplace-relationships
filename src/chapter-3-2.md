@@ -1,5 +1,3 @@
-Strategies for Building Emotional Intelligence
-==========================================================================================
 
 Building emotional intelligence is critical for fostering healthier and more productive workplace relationships. In this chapter, we will explore strategies for building emotional intelligence, including developing self-awareness, managing emotions, and building strong relationships.
 

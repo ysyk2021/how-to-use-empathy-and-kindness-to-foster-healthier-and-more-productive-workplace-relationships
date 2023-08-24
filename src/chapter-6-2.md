@@ -1,5 +1,3 @@
-Strategies for Navigating Conflict with Empathy and Kindness
-======================================================================================================================
 
 Conflict is a natural part of any workplace, but it can be challenging to navigate without causing damage to workplace relationships. In this chapter, we will explore strategies for navigating conflict with empathy and kindness, including active listening, reframing the situation, and seeking common ground.
 

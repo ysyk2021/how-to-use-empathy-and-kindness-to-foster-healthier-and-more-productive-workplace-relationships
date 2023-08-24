@@ -1,5 +1,3 @@
-The Importance of Demonstrating Kindness and Respect in Fostering Healthier and More Productive Workplace Relationships
-======================================================================================================================================================================
 
 Demonstrating kindness and respect is critical for fostering healthier and more productive workplace relationships. In this chapter, we will explore the importance of demonstrating kindness and respect in the workplace, techniques for doing so effectively, and strategies for addressing situations where kindness and respect are not being demonstrated.
 

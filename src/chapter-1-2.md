@@ -1,5 +1,3 @@
-Benefits of Positive Workplace Culture for Employee Well-being and Productivity
-========================================================================================================
 
 A positive workplace culture, where empathy and kindness are valued and practiced, can have significant benefits for employee well-being and productivity. In this chapter, we will explore the benefits of a positive workplace culture and how empathy and kindness can contribute to creating such a culture.
 

@@ -1,5 +1,3 @@
-Definition of Empathy and Kindness in the Workplace
-===================================================================================================================
 
 Empathy and kindness are vital qualities for building healthier and more productive workplace relationships. In this chapter, we will define empathy and kindness in the workplace.
 

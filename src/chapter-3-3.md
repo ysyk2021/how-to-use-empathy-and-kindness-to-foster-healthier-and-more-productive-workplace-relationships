@@ -1,5 +1,3 @@
-Using Self-Reflection and Empathy-Building Techniques
-=================================================================================================
 
 Building emotional intelligence is critical for fostering healthier and more productive workplace relationships. In this chapter, we will explore how self-reflection and empathy-building techniques can be used to build emotional intelligence in the workplace.
 

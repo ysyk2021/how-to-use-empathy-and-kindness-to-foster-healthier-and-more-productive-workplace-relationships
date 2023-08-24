@@ -1,5 +1,3 @@
-Importance of Using Empathy and Kindness to Foster Healthier and More Productive Workplace Relationships
-=================================================================================================================================
 
 The workplace can be a challenging environment, with competing priorities, tight deadlines, and conflicting personalities. However, by using empathy and kindness, we can build healthier and more productive workplace relationships that lead to increased collaboration, better problem-solving, and improved overall performance.
 

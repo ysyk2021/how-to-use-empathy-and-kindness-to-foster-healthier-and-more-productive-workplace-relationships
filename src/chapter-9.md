@@ -1,5 +1,3 @@
-Chapter 9: Applying Empathy and Kindness Skills to Career Advancement
-=====================================================================
 
 Using empathy and kindness skills can not only improve workplace relationships, but it can also benefit your career advancement. In this chapter, we will explore the benefits of applying empathy and kindness skills to career advancement, strategies for using these skills to advance your career, and how demonstrating leadership and good communication skills can support your efforts.
 

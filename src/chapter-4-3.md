@@ -1,5 +1,3 @@
-Using Active Listening and Non-Judgmental Feedback Techniques
-=============================================================================================================
 
 Effective communication is critical for building healthier and more productive workplace relationships, and empathetic communication plays a crucial role in creating a positive and supportive work environment. In this chapter, we will explore two key techniques for practicing empathetic communication: active listening and non-judgmental feedback.
 

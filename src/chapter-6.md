@@ -1,5 +1,3 @@
-Chapter 6: Navigating Conflict with Empathy and Kindness
-========================================================
 
 Navigating conflict with empathy and kindness is critical for fostering healthier and more productive workplace relationships. In this chapter, we will explore the importance of navigating conflict with empathy and kindness, strategies for doing so effectively, and techniques for using conflict resolution and problem-solving frameworks to enhance workplace relationships.
 

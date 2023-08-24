@@ -1,5 +1,3 @@
-Strategies for Using Empathy and Kindness Skills to Advance Your Career
-==============================================================================================================================================
 
 Applying empathy and kindness skills to career advancement can help individuals build stronger professional networks, enhance leadership abilities, and demonstrate effective communication skills. In this chapter, we will explore strategies for using empathy and kindness skills to advance your career.
 

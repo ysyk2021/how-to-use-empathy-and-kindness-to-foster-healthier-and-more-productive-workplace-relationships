@@ -1,5 +1,3 @@
-Strategies for Using Empathy and Kindness to Foster Healthier and More Productive Workplace Relationships
-=========================================================================================================================================================================
 
 Empathy and kindness are essential tools for building healthier and more productive workplace relationships. In this chapter, we will explore strategies for using empathy and kindness to foster healthier and more productive workplace relationships.
 

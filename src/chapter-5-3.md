@@ -1,5 +1,3 @@
-Using Gratitude and Appreciation Techniques
-==========================================================================================
 
 Demonstrating kindness and respect in the workplace is critical for fostering healthy workplace relationships. In this chapter, we will explore how gratitude and appreciation techniques can be used to demonstrate kindness and respect towards colleagues.
 

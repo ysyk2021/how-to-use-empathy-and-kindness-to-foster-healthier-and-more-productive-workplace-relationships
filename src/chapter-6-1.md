@@ -1,5 +1,3 @@
-The Importance of Navigating Conflict with Empathy and Kindness in Fostering Healthier and More Productive Workplace Relationships
-============================================================================================================================================================================================
 
 Conflict is an inevitable part of any workplace, but how individuals navigate conflict can have a significant impact on workplace relationships. In this chapter, we will explore the importance of navigating conflict with empathy and kindness, techniques for doing so effectively, and strategies for preventing conflicts from escalating.
 

@@ -1,5 +1,3 @@
-Overview of the Book
-=============================================
 
 The workplace can be a challenging environment, with competing priorities, tight deadlines, and conflicting personalities. However, by using empathy and kindness, we can build healthier and more productive workplace relationships that lead to increased collaboration, better problem-solving, and improved overall performance.
 

@@ -1,5 +1,3 @@
-Chapter 8: Measuring Empathy and Kindness Success
-=================================================
 
 Measuring the success of empathy and kindness strategies is essential for creating a positive and productive work environment. In this chapter, we will explore methods for measuring empathy and kindness success, analyzing employee engagement and satisfaction data and KPIs, and adjusting empathy and kindness strategies based on feedback.
 
