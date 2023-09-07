@@ -6,3 +6,7 @@ In this book, we explore the power of empathy and kindness in the workplace and 
 Overall, this book aims to provide readers with the knowledge and tools necessary to cultivate empathy and kindness in the workplace and become more successful in their careers. By focusing on these qualities, individuals and teams can build stronger relationships, foster greater understanding, and achieve greater success in their professional lives.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
