@@ -1,5 +1,4 @@
-Chapter 5: The Benefits of Applying Empathy and Kindness Skills to Career Advancement
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the tangible benefits of leveraging empathy and kindness skills for career advancement in the workplace. By recognizing the significant impact of these qualities on one's professional growth, individuals can harness them to propel their careers to new heights.
 

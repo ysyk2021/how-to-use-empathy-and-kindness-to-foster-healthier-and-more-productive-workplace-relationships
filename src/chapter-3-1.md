@@ -1,5 +1,4 @@
-Chapter 2: The Importance of Building Emotional Intelligence in Using Empathy and Kindness in the Workplace
-===========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital role that emotional intelligence plays in harnessing empathy and kindness to foster healthier and more productive workplace relationships. Emotional intelligence (EQ) is the foundation upon which empathy and kindness are built, and understanding its significance is key to creating a harmonious and supportive work environment.
 

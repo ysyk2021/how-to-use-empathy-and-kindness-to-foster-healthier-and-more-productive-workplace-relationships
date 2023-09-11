@@ -1,5 +1,4 @@
-Chapter 5: The Impact of Empathy and Kindness on Personal and Professional Development
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how practicing empathy and kindness can have a profound impact on personal and professional growth and development. These qualities are not only essential for building better workplace relationships but also for enhancing individual well-being and success.
 

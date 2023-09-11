@@ -1,5 +1,4 @@
-Chapter 6: Using Conflict Resolution and Problem-Solving Frameworks
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the practical application of conflict resolution and problem-solving frameworks to enhance workplace relationships through empathy and kindness. These structured approaches provide a roadmap for addressing conflicts and challenges while promoting a positive work environment.
 

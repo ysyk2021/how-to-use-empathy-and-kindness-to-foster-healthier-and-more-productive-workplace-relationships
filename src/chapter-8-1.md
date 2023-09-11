@@ -1,5 +1,4 @@
-Chapter 7: Methods for Measuring Empathy and Kindness Success
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various methods and tools for measuring the success of fostering empathy and kindness in the workplace to build healthier and more productive relationships. Effective measurement is essential to assess the impact of your efforts and make data-driven improvements.
 

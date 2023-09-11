@@ -1,5 +1,4 @@
-Chapter 6: Analyzing Employee Engagement and Satisfaction Data and KPIs
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the critical process of analyzing employee engagement and satisfaction data and Key Performance Indicators (KPIs). Understanding how to interpret and act upon this information is fundamental to fostering healthier and more productive workplace relationships through empathy and kindness.
 

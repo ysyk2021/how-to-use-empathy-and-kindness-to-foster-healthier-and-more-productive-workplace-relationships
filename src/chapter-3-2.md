@@ -1,5 +1,4 @@
-Chapter 3: Strategies for Building Emotional Intelligence
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into strategies for developing emotional intelligence, a key component of fostering healthier and more productive workplace relationships through empathy and kindness. Emotional intelligence empowers individuals to recognize, understand, and manage their emotions and those of others, leading to more effective communication and collaboration.
 

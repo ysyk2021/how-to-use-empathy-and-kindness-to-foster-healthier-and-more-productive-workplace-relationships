@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Navigating Conflict with Empathy and Kindness
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for navigating workplace conflicts with empathy and kindness. Conflict is a natural part of any workplace, but it can be managed and resolved in a way that strengthens relationships and promotes a healthier, more productive work environment.
 

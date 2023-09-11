@@ -1,5 +1,4 @@
-Chapter 4: Using Self-Reflection and Empathy-Building Techniques
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of self-reflection and various empathy-building techniques in fostering healthier and more productive workplace relationships. By developing a deeper understanding of oneself and others, individuals can enhance their empathy and kindness, creating a more harmonious and collaborative work environment.
 

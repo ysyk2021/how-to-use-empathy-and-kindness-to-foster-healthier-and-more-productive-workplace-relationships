@@ -1,5 +1,4 @@
-Chapter 3: Strategies for Practicing Empathetic Communication
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential strategies for cultivating empathetic communication in the workplace. Empathy is a foundational skill for building healthier and more productive workplace relationships, and it plays a pivotal role in fostering understanding and kindness among colleagues.
 

@@ -1,5 +1,4 @@
-Chapter 6: The Role of Fostering Inclusion and Diversity in Using Empathy and Kindness in the Workplace
-=======================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial connection between empathy, kindness, and fostering inclusion and diversity in the workplace. Creating an inclusive environment is not only essential for building healthier and more productive workplace relationships but also for promoting empathy and kindness among colleagues.
 

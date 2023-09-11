@@ -1,5 +1,4 @@
-Chapter 2: Definition of Empathy and Kindness in the Workplace
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the fundamental concepts of empathy and kindness as they apply to the workplace. Understanding these terms and their significance is crucial for creating a healthier and more productive work environment.
 

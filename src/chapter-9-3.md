@@ -1,5 +1,4 @@
-Chapter 4: Demonstrating Leadership and Good Communication Skills
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital role of leadership and effective communication skills in fostering healthier and more productive workplace relationships through empathy and kindness. Demonstrating leadership and communication skills that prioritize empathy and kindness not only enhances personal and team dynamics but also contributes to a positive work environment.
 

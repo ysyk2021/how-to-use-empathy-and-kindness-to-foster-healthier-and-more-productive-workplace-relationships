@@ -1,5 +1,4 @@
-Chapter 2: Strategies for Using Empathy and Kindness to Foster Healthier and More Productive Workplace Relationships
-====================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical strategies for applying empathy and kindness in the workplace to create a more positive and productive environment. These strategies will help you build stronger relationships with your colleagues and contribute to a harmonious and successful workplace.
 

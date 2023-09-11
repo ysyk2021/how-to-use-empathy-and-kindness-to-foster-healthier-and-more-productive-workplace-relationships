@@ -1,5 +1,4 @@
-Chapter 4: Using Active Listening and Non-Judgmental Feedback Techniques
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital skills of active listening and providing non-judgmental feedback as essential tools for building healthier and more productive workplace relationships through empathy and kindness.
 
